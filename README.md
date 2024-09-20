@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jessvcv or Jessica Tran
+- 🌱 I’m currently learning at Belmont Univeristy as a Computer Science and Data Science student.
+- 📫 How to reach me: jessica.tran@bruins.belmont.edu
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love listening and playing music.
